@@ -1,0 +1,2 @@
+# Trofimovs_Ar-paliglidzekliem
+ 
